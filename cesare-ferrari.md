@@ -1,10 +1,9 @@
 Hi, I am Cesare.
 
-I am from Italy but live in Pennsylvania.
+I am from Pennsylvania but live in Italy.
 
-Three words that describe me are: curious, quiet, creative.
+Three words that describe me are: dumb, exhuberant, boring.
 
-My favorite hobby is cooking and making bread and pastry.
+My favorite hobby is eating and sleeping.
 
-My favorite means of transportation is a bicycle. I love riding my bike, but
-can't ride much here because there are too many hills.
+My favorite means of transportation is a truck. 
